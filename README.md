@@ -1,2 +1,2 @@
 # vuevixens
-🍎🍉List of fruits🍊🍍🍐 
+🍎🍉🍊🍍🍐 
