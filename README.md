@@ -1,2 +1,2 @@
-# vuevixens
+#Vue Vixens Workshops
 🍎🍉🍊🍍🍐 
